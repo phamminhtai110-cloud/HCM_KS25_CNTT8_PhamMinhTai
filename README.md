@@ -1,1 +1,0 @@
-# HCM_KS25_CNTT8_PhamMinhTai
